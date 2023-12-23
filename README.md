@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aya-elshair
+- 👀 I’m interested in website design and development
+- 🌱 I’m currently studying computer science 
+- 📫 How to reach me elshairaya@gmail.com
